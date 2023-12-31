@@ -1,1 +1,1 @@
-# dingyue
+vless://bm9uZTpkMzQyZDExZS1kNDI0LTQ1ODMtYjM2ZS01MjRhYjFmMGFmYTRAaWNvb2suaGs6ODQ0Mw?remarks=%E7%BE%8E%E5%9B%BD(yudou66.com%20%E7%8E%89%E8%B1%86%E5%85%8D%E8%B4%B9%E8%8A%82%E7%82%B9)&obfsParam=edgood.king361.cf&path=/?ed=2048&obfs=websocket&tls=1&peer=edgood.king361.cf
